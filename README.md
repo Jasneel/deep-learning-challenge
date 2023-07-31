@@ -1,3 +1,3 @@
-Please see .PDF and .DOCs file for the report.
+Please see .PDF and .DOCx file for the report.
 
 Thank You.
